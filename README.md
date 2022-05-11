@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Oyinlolaibitayo
-- 👀 I’m interested in building my buddding interest in tech and relate to my career in Chemical Engineering.
+- 👀 I’m interested in building my buddding interest in tech and relate it to my career in Chemical Engineering.
 - 🌱 I’m currently learning Product Design
 - 💞️ I’m looking to collaborate on Design and fields as related to Chemical Engineering
 - 📫 Want to reach me? Dm on twitter @oyinlolaibitayo
